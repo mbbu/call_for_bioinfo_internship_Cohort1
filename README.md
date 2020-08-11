@@ -15,7 +15,7 @@ The applicant must submit together with the application:
 
 Application Open: **4th August 2020**
 
-Application Deadline: **17th August 2020**
+Application Deadline: **17th August 2020** **(Closed early (Aug 12) due to the large number of applications received)**
 
 To apply, please complete the form in this [application Link](https://redcap.icipe.org/redcap/surveys/?s=KMH79XLEDJ)
 
